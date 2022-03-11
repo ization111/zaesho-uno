@@ -1,1 +1,1 @@
-# zaesho-uno
+# zaesho-uno Hello world I am new to the community and am glad to be here. My aim is to learn how to code and develop games and build 3D metaverse assets as well. Any and all information to help me on my journey would be much appreciated. 
